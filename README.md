@@ -1,1 +1,0 @@
-# mrakylbek.github.io
